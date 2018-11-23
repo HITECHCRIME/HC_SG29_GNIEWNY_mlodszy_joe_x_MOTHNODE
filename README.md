@@ -27,3 +27,14 @@ Hitech Crime Single 'Hybrid'
 8  I can do this shit for days
 13 I love to see how they act when they can't face the fact
 9  That they have just been lost in my maze
+
+CHORUS
+
+A lot of shit on up my mind, but I stay focused
+I'm always sippin' or I'm smokin', you should know this
+You can't see me, you might feel me movin' past you
+Don't wanna do it, but I'll kill 'em if I have to
+A lot of shit on up my mind, but I stay focused
+I'm always sippin' or I'm smokin', you should know this
+You can't see me, you might feel me movin' past you
+Don't wanna do it, but I'll kill 'em if I have to
