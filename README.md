@@ -12,6 +12,9 @@ ciosana niby z betonu, a miękka na cash
 rozbij się rynno 
 frustracja jak deszcz
 
+dla ciebie nie problem, dać komus po mordzie
+przylizać nożem po głowie, być pizdą wsrod gnid to jest ace
+
 
 interpretujemy słowa przez nasz umysł
 
