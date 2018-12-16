@@ -3,7 +3,6 @@ Hitech Crime Single 'Hybrid'
 
 mowisz kurwa chcesz rozjebac mi łeb
 płytą chodnika, ja wieem - 
-
 jest jeden problem, niech no uświadomię
 bo to ci nie styka, niech przejdzie przez łeb
 
@@ -11,7 +10,7 @@ cisza nie złoto lecz -
 długie milczenie to bless -
 ciosana niby z betonu, a miękka na cash
 
-rozbijaj się rynno o mnie frustracja jak deszcz
+rozbijaj się rynno frustracja jak deszcz
 interpretujemy słowa przez nasz umysł
 
 boli cię że mam rację?
