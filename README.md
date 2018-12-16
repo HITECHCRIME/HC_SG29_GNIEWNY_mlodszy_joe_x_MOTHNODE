@@ -2,18 +2,27 @@
 Hitech Crime Single 'Hybrid'
 
 mowisz kurwa chcesz rozjebac mi łeb
-płytą chodnika, ja wiem - 
+płytą chodnika, ja wieem - 
+
 jest jeden problem, niech no uświadomię
-ciosana jak beton, a miękka jak cep
+bo to ci nie styka, niech przejdzie przez łeb
+
+cisza nie złoto lecz -
+długie milczenie to bless -
+ciosana z betonu, a miękka na cash
+
+rozbijesz o mnie frustrację, jak znowu mam rację
+
 
 interpretujemy słowa przez nasz umysł
-zalany wylewką, nalewką i bielą
 
-rozbijesz o mnie swoją frustrację
+
+
 boli cię że mam rację?
 
 wymieszam, zostawię, zostaniesz jak skała
 erozja kompletna aż nie spotkasz rownego sobie typa
+zalany wylewką, nalewką i bielą bo inaczej nie fun
 
 
 masz czelność się odzywać
