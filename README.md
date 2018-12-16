@@ -11,12 +11,8 @@ cisza nie złoto lecz -
 długie milczenie to bless -
 ciosana z betonu, a miękka na cash
 
-rozbijesz o mnie frustrację, jak znowu mam rację
-
-
+rozbijesz się rynno o mnie frustracja jak deszcz
 interpretujemy słowa przez nasz umysł
-
-
 
 boli cię że mam rację?
 
