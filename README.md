@@ -9,16 +9,18 @@ bo to ci nie styka, niech przejdzie przez łeb
 
 cisza nie złoto lecz -
 długie milczenie to bless -
-ciosana z betonu, a miękka na cash
+ciosana niby z betonu, a miękka na cash
 
-rozbijesz się rynno o mnie frustracja jak deszcz
+rozbijaj się rynno o mnie frustracja jak deszcz
 interpretujemy słowa przez nasz umysł
 
 boli cię że mam rację?
 
 wymieszam, zostawię, zostaniesz jak skała
-erozja kompletna aż nie spotkasz rownego sobie typa
-zalany wylewką, nalewką i bielą bo inaczej nie fun
+erozja kompletna aż spotkasz rownego typa
+zalany wylewką, nalewką i bielą 
+
+bo inaczej nie fun
 
 
 masz czelność się odzywać
