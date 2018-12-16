@@ -1,6 +1,29 @@
 # HC_SG29_mlodszy_joe_x_MOTHNODE
 Hitech Crime Single 'Hybrid'
 
+mowisz kurwa chcesz rozjebac mi łeb
+płytą chodnika, ja wiem - 
+jest jeden problem, niech no uświadomię
+ciosana jak beton, a miękka jak cep
+
+interpretujemy słowa przez nasz umysł
+zalany wylewką, nalewką i bielą
+
+rozbijesz o mnie swoją frustrację
+boli cię że mam rację?
+
+wymieszam, zostawię, zostaniesz jak skała
+erozja kompletna aż nie spotkasz rownego sobie typa
+
+
+masz czelność się odzywać
+krolowo sponsoringu, pasożycie
+
+mowisz kurwa chcesz, rozjebac mi łeb
+płytą chodnika, ja wiem, 
+ale jest jeden problem 
+rozbijesz się o mnie 
+
 15 We confront the pain in life cuz' we need to just to survive
 7 Sometimes words are hard to find
 9 When the meanings hidden from our eyes
