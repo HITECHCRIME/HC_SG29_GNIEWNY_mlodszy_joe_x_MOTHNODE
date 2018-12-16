@@ -8,9 +8,10 @@ bo to ci nie styka, niech przejdzie przez łeb
 
 cisza nie złoto lecz -
 długie milczenie to bless -
+rozbij się rynno (?) put it below potentially?
+frustracja jak deszcz  (?)
 ciosana niby z betonu, a miękka na cash
-rozbij się rynno 
-frustracja jak deszcz
+
 
 dla ciebie nie problem, dać komus po mordzie
 przylizać nożem po głowie, dla ciebie w normie 
