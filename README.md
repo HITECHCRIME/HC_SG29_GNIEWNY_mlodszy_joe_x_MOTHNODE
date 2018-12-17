@@ -11,10 +11,11 @@ długie milczenie to bless -
 rozbij się rynno (?) put it below potentially?
 frustracja jak deszcz  (?)
 ciosana niby z betonu, a miękka na cash
+miękka na cash
 
 
 dla ciebie nie problem, dać komus po mordzie
-przylizać nożem po głowie, dla ciebie w normie 
+przylizać nożem po głowie, dla ciebie to w normie 
 być pizdą wsrod gnid to jest ace
 
 
