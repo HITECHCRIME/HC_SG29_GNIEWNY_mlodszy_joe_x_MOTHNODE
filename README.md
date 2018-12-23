@@ -102,7 +102,7 @@ mine
 
 watching what you mean, watching what you do 
 I'm never through with bliss, stalkin' what you do
-I'm never through
+I'm never through with you
 
 Omnipresent subject, no criminal intent
 
