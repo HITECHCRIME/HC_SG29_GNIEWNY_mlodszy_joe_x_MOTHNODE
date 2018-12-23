@@ -78,15 +78,15 @@ Don't wanna do it, but I'll kill 'em if I have to
 
 ---
 
-I never listened so just know I'm still not hearing ya
-Never fit in but rejection builds character
-Underneath the radar whenever I'm in the area
-See the mainstream vs me, no comparison
+14 I never listened so just know I'm still not hearing ya
+12 Never fit in but rejection builds character
+14 Underneath the radar whenever I'm in the area
+12 See the mainstream vs me, no comparison
 
-Don't seem like anything can ever hold my focus
-Nowadays don't click, I just keep scrollin'
-Omen rollin' smoking, till I'm steady over-flowing
-Rappers think they cold, but I'm subzero frozen
+13 Don't seem like anything can ever hold my focus
+10 Nowadays don't click, I just keep scrollin'
+14 Omen rollin' smoking, till I'm steady over-flowing
+12 Rappers think they cold, but I'm subzero frozen
 
 ---
 
@@ -94,12 +94,17 @@ Rappers think they cold, but I'm subzero frozen
 
 mine
 
-Always present, reckless smoking, filling empty rooms
-Split mind, naked walls, truly wishing it was you
-Racking scars on my soul, this a nice count
-I'm never through with this, watchin' what you do
+13 Always present, reckless staring (smoking), feeling empty rooms +1
+10 Racking scars on my soul, such a stealth move +4
+12 Split mind, naked walls, truly wishing it was you
+11 I'm never through with bliss, stalkin' what you do +1
 
 watching what you mean, watching what you do 
+I'm never through with bliss, stalkin' what you do
+
+Omnipresent subject, no criminal intent
+
+
 
 
 
