@@ -94,13 +94,15 @@ Don't wanna do it, but I'll kill 'em if I have to
 
 mine
 
-13 Always present, reckless staring (smoking), feeling empty rooms +1
+13 Always present, reckless smoking, staring, feeling empty rooms +1
 10 Racking scars on my soul, such a stealth move +4
 12 Split mind, naked walls, truly wishing it was you
 11 I'm never through with bliss, stalkin' what you do +1
 
+
 watching what you mean, watching what you do 
 I'm never through with bliss, stalkin' what you do
+I'm never through
 
 Omnipresent subject, no criminal intent
 
