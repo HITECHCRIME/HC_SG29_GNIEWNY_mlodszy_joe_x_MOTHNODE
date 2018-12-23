@@ -75,3 +75,29 @@ A lot of shit on up my mind, but I stay focused
 I'm always sippin' or I'm smokin', you should know this
 You can't see me, you might feel me movin' past you
 Don't wanna do it, but I'll kill 'em if I have to
+
+---
+
+I never listened so just know I'm still not hearing ya
+Never fit in but rejection builds character
+Underneath the radar whenever I'm in the area
+See the mainstream vs me, no comparison
+
+Don't seem like anything can ever hold my focus
+Nowadays don't click, I just keep scrollin'
+Omen rollin' smoking, till I'm steady over-flowing
+Rappers think they cold, but I'm subzero frozen
+
+---
+
+---
+
+mine
+
+Always present, reckless smoking, filling empty rooms
+Micro voids, naked walls, split mind, truly wishing it was you
+Racking scars on my soul, ain't this a nice juicy count
+I'm never ever through, whatever I was meant to do
+
+
+
