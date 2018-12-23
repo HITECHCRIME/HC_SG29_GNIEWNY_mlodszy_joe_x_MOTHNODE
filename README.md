@@ -97,7 +97,7 @@ mine
 Always present, reckless smoking, filling empty rooms
 Split mind, naked walls, truly wishing it was you
 Racking scars on my soul, this a nice count
-I'm never through with this, watching what you do
+I'm never through with this, watchin' what you do
 
 watching what you mean, watching what you do 
 
