@@ -95,9 +95,11 @@ Rappers think they cold, but I'm subzero frozen
 mine
 
 Always present, reckless smoking, filling empty rooms
-Micro voids, naked walls, split mind, truly wishing it was you
-Racking scars on my soul, ain't this a nice juicy count
-I'm never ever through, whatever I was meant to do
+Split mind, naked walls, truly wishing it was you
+Racking scars on my soul, this a nice count
+I'm never through, 
+
+watching what you mean, watching what you do 
 
 
 
