@@ -94,8 +94,10 @@ Don't wanna do it, but I'll kill 'em if I have to
 
 mine - omenxiii - imsorry type
 
-13 Always present, reckless smoking, staring, feeling empty rooms +1
+13 Always present, reckless smoking, staring, feeling empty rooms +1 ---
+
 10 Racking scars on my soul, such a stealth move +4 -
+
 12 Split mind, naked walls, truly wishing it was you -
 11 I'm never through with bliss, stalkin' what you do +1
 
@@ -103,7 +105,11 @@ watching what you mean, watching what you do
 I'm never through with bliss, stalkin' what you do
 I'm never through with you
 
-Omnipresent subject, no criminal intent
+Omnipresent subject, no obvious criminal ties
+Gouge my eyes, gouge my heart, let me die
+Let me run for the night, let me show you sparks
+Your eyes shine, access or no access ain't no try
+subliminal lies, I cast the net, coded sys, by now you are mine 
 
 
 
