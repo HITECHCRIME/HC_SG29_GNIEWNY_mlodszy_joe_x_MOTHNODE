@@ -105,11 +105,13 @@ watching what you mean, watching what you do
 I'm never through with bliss, stalkin' what you do
 I'm never through with you
 
-Omnipresent subject, no obvious criminal ties
+Omnipresent subject, no obvious criminal ties (?)
 Gouge my eyes, gouge my heart, let me die
 Let me run for the night, let me show you sparks
 Your eyes shine, access or no access ain't no try
-subliminal lies, I cast the net, coded sys, by now you are mine 
+subliminal lies, cast on the net, coded sys, by now you are mine (?)
+
+gotta tune and record the vocal to proper timing from the instastory (that fit perfectly)
 
 
 
