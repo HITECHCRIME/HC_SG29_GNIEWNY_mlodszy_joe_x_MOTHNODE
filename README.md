@@ -94,6 +94,13 @@ Don't wanna do it, but I'll kill 'em if I have to
 
 mine - omenxiii - imsorry type
 
+
+
+
+
+
+
+
 13 Always present, reckless smoking, staring, feeling empty rooms +1 ---
 
 10 Racking scars on my soul, such a stealth move +4 -
@@ -109,9 +116,9 @@ Omnipresent subject, no criminal ties (?)
 Gouge my eyes, gouge my heart, let me die
 Let me run for the night, let me show you sparks
 Your eyes shine, access or no access ain't no try
-subliminal lies
-check the time
-in my mind
+? subliminal lies
+? check the time
+? in my mind
 
 
 cast on the net, coded sys, by now you are mine (?)
