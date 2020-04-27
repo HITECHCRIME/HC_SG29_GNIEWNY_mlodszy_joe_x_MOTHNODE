@@ -1,4 +1,4 @@
-# HC_SG29_mlodszy_joe_x_MOTHNODE
+# HC_SG29_GNIEWNY_mlodszy_joe_x_MOTHNODE
 Hitech Crime Single 'Hybrid'
 
 mowisz kurwa chcesz rozjebac mi łeb
